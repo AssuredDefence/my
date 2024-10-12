@@ -1,6 +1,5 @@
 # Your Trusted Cyber Security Partner
 
-### Safeguarding Your Digital World
 In today’s connected world, cyber threats are evolving at an alarming rate. As a **Cyber Security Expert**, I provide comprehensive security solutions to ensure your business and personal data stay safe from hackers, malware, and other cyber threats.
 
 My mission is clear:  
